@@ -1,1 +1,1 @@
-https://github.com/unlovedbuilder/ono-tebe-nado-ad/
+https://github.com/unlovedcreator/ono-tebe-nado-ad
